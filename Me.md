@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @sed0775
+- 🏠 I'm from İstanbul,Türkiye
+- 👨‍🎓 I'm student.
